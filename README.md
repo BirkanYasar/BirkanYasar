@@ -9,5 +9,11 @@
 
 *I am interested in fitness. :muscle: Sometimes I play Starcraft II* :rocket:
 
+*how can you reach me?*
+
+[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/birkanya%C5%9Far/)
+
+:mailbox: 	[Gmail](birkanyasar366@gmail.com)
+
 *and one more thing...
 the world is not flat.*
